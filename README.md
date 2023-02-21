@@ -152,5 +152,52 @@ casa 12 - 3586814
 
 casa 13 - 
 
+![1](https://user-images.githubusercontent.com/116287208/220241516-194d0952-910f-433b-9b33-e8bbaea55cee.jpg)
+![2](https://user-images.githubusercontent.com/116287208/220241520-79b378e7-386d-455b-9148-a0b41ea11e5c.jpg)
+![3](https://user-images.githubusercontent.com/116287208/220241521-cfb6d083-4308-466a-904f-b5a78b640c57.jpg)
+![4](https://user-images.githubusercontent.com/116287208/220241524-52218318-0f92-479c-a351-0cfcda4c335c.jpg)
+![5](https://user-images.githubusercontent.com/116287208/220241527-bc4fafcd-fdad-4ba2-99bd-141180ad85a4.jpg)
+![6](https://user-images.githubusercontent.com/116287208/220241531-5de66a83-8ad6-4bad-b908-049ac1a628c9.jpg)
+![7](https://user-images.githubusercontent.com/116287208/220241533-56de777b-6230-4e1e-b138-43f104bb8556.jpg)
+![8](https://user-images.githubusercontent.com/116287208/220241534-a95e48ac-7308-4043-9a4a-43e7b5d9a3f7.jpg)
+
+<hr<
+
+casa 14 - 2595664
+
+
+![1](https://user-images.githubusercontent.com/116287208/220242115-0956f7c0-4c59-4174-a124-89d396c24e4f.jpg)
+![2](https://user-images.githubusercontent.com/116287208/220242119-6373012f-a0e5-41c0-aa2d-6f566dee2b76.jpg)
+![3](https://user-images.githubusercontent.com/116287208/220242121-f3d2c5eb-d49e-4e86-b2bb-12c5bae0344f.jpg)
+![4](https://user-images.githubusercontent.com/116287208/220242123-97b932c7-0121-4c80-80e2-66687482e631.jpg)
+![5](https://user-images.githubusercontent.com/116287208/220242125-7915cbf1-b28f-4959-825c-8bd19b4f3d19.jpg)
+![6](https://user-images.githubusercontent.com/116287208/220242130-45029a26-44b5-4237-8711-6be93a5bbec8.jpg)
+![7](https://user-images.githubusercontent.com/116287208/220242138-91f13f3b-69a6-4c1e-902d-5749a046ccb8.jpg)
+![8](https://user-images.githubusercontent.com/116287208/220242142-a8d961d0-09c0-4dc0-b332-71b719beabd3.jpg)
+![9](https://user-images.githubusercontent.com/116287208/220242143-4ee490be-7a49-46d6-8c22-fbbe35987236.jpg)
+![10](https://user-images.githubusercontent.com/116287208/220242145-2089b314-ea1b-46ca-9a46-dacd27fbb0a6.jpg)
+![11](https://user-images.githubusercontent.com/116287208/220242148-9f1f86d4-1b85-4d88-a5b1-d00cfd0561ab.jpg)
+
+<hr>
+
+casa 15 - 3586747
+
+![1](https://user-images.githubusercontent.com/116287208/220242793-ada6161a-fdc7-4b38-b832-f6b04dbaffed.jpg)
+![2](https://user-images.githubusercontent.com/116287208/220242796-085ee709-89c5-4610-807a-6fc8b0913da2.jpg)
+![3](https://user-images.githubusercontent.com/116287208/220242798-0c057fff-07b1-4dd7-b9fd-04bb4a2cdc21.jpg)
+![4](https://user-images.githubusercontent.com/116287208/220242800-dcaff7e6-e17c-4b4b-a888-e93022427cec.jpg)
+![5](https://user-images.githubusercontent.com/116287208/220242803-ec956c24-e225-4b4a-b905-9cb89008a9f0.jpg)
+![6](https://user-images.githubusercontent.com/116287208/220242806-83f75d36-c8af-4406-a966-d4385a74a501.jpg)
+
+
+<hr>
+
+2 salas comerciais Edifício UNIQUE 
+
+![1](https://user-images.githubusercontent.com/116287208/220243817-94c1fa65-9175-42fe-bdd7-cef25bc8543f.jpg)
+![3](https://user-images.githubusercontent.com/116287208/220243818-f8b5c05f-647f-4495-964a-b8d6b46918b6.jpg)
+![4](https://user-images.githubusercontent.com/116287208/220243821-02772aa0-8cd8-47fb-9460-d3edcefebbcc.jpg)
+![5](https://user-images.githubusercontent.com/116287208/220243825-72af4ab4-54c4-4b1d-9614-d9975565ab0a.jpg)
+
 
 
