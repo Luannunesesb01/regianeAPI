@@ -227,6 +227,32 @@ CASA 16 ZAP
 ![WhatsApp Image 2023-04-29 at 4 36 58 PM (2)](https://user-images.githubusercontent.com/116287208/235330739-c3693033-0ffb-4dc5-b116-098541a0ef11.jpeg)
 ![WhatsApp Image 2023-04-29 at 4 36 58 PM (3)](https://user-images.githubusercontent.com/116287208/235330740-cdcfab10-2c3a-4aed-b7a1-39f6ef137e93.jpeg)
 ![WhatsApp Image 2023-04-29 at 4 36 58 PM (4)](https://user-images.githubusercontent.com/116287208/235330741-be0a6d23-3c62-49d0-a9f4-64bfa37d5b2e.jpeg)
+
+<hr>
+
+Casa 17 ZAP
+
+![WhatsApp Image 2023-09-06 at 11 50 39 AM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/2020a863-f0cf-4a6a-92d4-35228a13ead0)
+![WhatsApp Image 2023-09-06 at 11 50 39 AM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/ebea41fd-4a73-4f88-8c00-87adc8933f5c)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (6)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/609b27fb-c22e-4618-886c-9530f9755a9a)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (5)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/7c8a347a-e0a7-403e-ab0c-fcd70dc6b596)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (4)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/c47fe567-f7d8-4b90-8cdc-7d82de6eb7a2)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (3)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/46ab32f6-8e5e-42c2-a10f-d7fc811469a0)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (2)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/d2ff6b4d-86fc-4082-9cad-9540e895a3bd)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/de9bbf3e-7f1a-462b-b22d-4bfc8f2bd4bf)
+![WhatsApp Image 2023-09-06 at 11 50 38 AM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/42979b47-5e8a-4f82-bee0-c04db16be506)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM (5)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/0a7e0596-d02b-40b7-85f9-ab5a6b99dd48)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM (4)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/b31ee882-bc23-4d60-aaa2-9b74618e75d1)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM (3)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/ba0379ad-f7d6-4a9c-906d-fb9433313be3)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM (2)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/11f1a61f-19c8-43c1-8751-9fe5260c29df)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/35a6070d-c89d-475f-ae0a-479dd1640797)
+![WhatsApp Image 2023-09-06 at 11 50 37 AM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/5d103ba6-f4cf-4a74-80b0-73bd3460f0e7)
+
+
+
+<hr>
+
+
 ![WhatsApp Image 2023-04-29 at 4 36 58 PM (5)](https://user-images.githubusercontent.com/116287208/235330742-ba73c1f5-274d-439c-808a-bf70bbfc6864.jpeg)
 ![WhatsApp Image 2023-04-29 at 4 36 59 PM](https://user-images.githubusercontent.com/116287208/235330743-227f950d-b868-4c2b-b848-0d13151bad0a.jpeg)
 ![WhatsApp Image 2023-04-29 at 4 36 59 PM (1)](https://user-images.githubusercontent.com/116287208/235330744-3d32495c-7dc9-4b1e-b55a-28835fef4c04.jpeg)
