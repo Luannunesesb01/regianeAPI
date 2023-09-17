@@ -249,6 +249,18 @@ Casa 17 ZAP
 ![WhatsApp Image 2023-09-06 at 11 50 37 AM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/5d103ba6-f4cf-4a74-80b0-73bd3460f0e7)
 
 
+<hr>
+
+Casa 18 ZAP
+
+![WhatsApp Image 2023-09-14 at 4 16 35 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/408a7cfb-a66a-4eeb-a1ee-e039d7466238)
+![WhatsApp Image 2023-09-14 at 4 16 35 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/d777570e-b780-476f-b946-b52cfeccfd3b)
+![WhatsApp Image 2023-09-14 at 4 16 34 PM (3)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/7ce7cc23-758d-41e3-921a-2b733e34a02a)
+![WhatsApp Image 2023-09-14 at 4 16 34 PM (2)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/f40eab37-418b-4436-8bf4-4370606a3ff3)
+![WhatsApp Image 2023-09-14 at 4 16 34 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/a0b742b2-7aa4-4fcd-9777-ea269556e0ea)
+![WhatsApp Image 2023-09-14 at 4 16 34 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/ad3f09da-76d3-496c-982a-9ebfae2a221e)
+![WhatsApp Image 2023-09-14 at 4 16 33 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/5ced5ebd-6cea-4c1f-bb57-d0761b8af469)
+![WhatsApp Image 2023-09-14 at 4 16 33 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/90f82674-1a1a-472b-bbf1-887da4587756)
 
 <hr>
 
