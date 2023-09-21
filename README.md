@@ -264,6 +264,22 @@ Casa 18 ZAP
 
 <hr>
 
+CASA 19 ZAP
+
+![WhatsApp Image 2023-09-17 at 9 42 01 PM (3)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/e7ae39a1-b0e4-436a-94de-162376ebf816)
+![WhatsApp Image 2023-09-17 at 9 42 01 PM (2)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/2679a6fd-f3bc-4853-ad81-fd718bcf8268)
+![WhatsApp Image 2023-09-17 at 9 42 01 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/2de43e16-e050-44e7-9f5b-07395da220f5)
+![WhatsApp Image 2023-09-17 at 9 42 01 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/cbcc9f9e-41fa-4633-af5f-b6e9967b1220)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM (5)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/7d0fdcbd-805f-4337-b3c2-f8d4ffa2fdbe)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM (4)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/40904d62-61ed-4cf9-af01-5dea12a85e2a)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM (3)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/5e9774e3-19e3-4f0e-9d68-6473bd473492)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM (2)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/fcfd37f1-44d0-4408-ba28-1b2ef45721d5)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/02a22931-455b-42c1-bb20-a075b4218f8b)
+![WhatsApp Image 2023-09-17 at 9 42 00 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/cb0bac8a-22a5-40e3-b3e5-c91259c826c7)
+![WhatsApp Image 2023-09-17 at 9 41 59 PM (1)](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/d56c5f1a-5f7b-4089-8947-8acb841761dc)
+![WhatsApp Image 2023-09-17 at 9 41 59 PM](https://github.com/Luannunesesb01/regianeAPI/assets/116287208/5bf78cfd-490f-4866-9602-8ea6865b5006)
+
+
 
 ![WhatsApp Image 2023-04-29 at 4 36 58 PM (5)](https://user-images.githubusercontent.com/116287208/235330742-ba73c1f5-274d-439c-808a-bf70bbfc6864.jpeg)
 ![WhatsApp Image 2023-04-29 at 4 36 59 PM](https://user-images.githubusercontent.com/116287208/235330743-227f950d-b868-4c2b-b848-0d13151bad0a.jpeg)
